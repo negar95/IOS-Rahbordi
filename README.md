@@ -1,3 +1,3 @@
 # IOS-Rahbordi
 ### Download
-You can Download The APP [here](https://new.sibapp.com/applications/kanoonrahbordi)
+[Click here](https://new.sibapp.com/applications/kanoonrahbordi)
